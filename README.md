@@ -32,5 +32,9 @@ Second, since cash and UPI are the most used payment methods, digital payment of
 Third, focusing on high-demand vehicle types like bikes and sedans can improve ride completion rate and earnings.
 Fourth, maintaining high driver and customer ratings through training, support, and feedback systems will enhance overall service quality.
 Finally, continuous use of data analytics and dashboards will help management take faster and smarter business decisions.
-Overall, applying these suggestions can increase revenue, reduce cancellations, and improve customer satisfaction for better long-term growth..
+Overall, applying these suggestions can increase revenue, reduce cancellations, and improve customer satisfaction for better long-term growth.....
 
+
+
+
+   • Thankyou •
